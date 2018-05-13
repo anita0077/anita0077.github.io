@@ -6,7 +6,8 @@ I value honesty most. I believe in open business and transparency which can lead
 
 Leadership is all about knowing your team and accepting the individuality of each member. Being found of IT and technologies I do my best to develop my skills and expand the area of knowledge to deliver most effective and cutting-edge solutions.
 
-[I'm a hyperlink](https://www.linkedin.com/in/alkhimovichanita/)
+[LinkedIn ](https://www.linkedin.com/in/alkhimovichanita/)
+[Email] (al.anita0077@gmail.com)
 
 ```
 This is a container
