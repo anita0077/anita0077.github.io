@@ -2,7 +2,9 @@
 
 Result oriented, dynamic, forward-looking professional with strong focus on innovations and effectiveness. I combine creative and strategical thinking to accomplish goals. I take risks and responsibilities as I believe that reasonable changes are the driving force of progress. I utilize keen analysis and insights team approach to motivate organizational improvements and implement best marketing and management practices. 
 
-I value honesty most. I believe in open business and transparency which can lead to better results and work environment. Superior interpersonal skills help me in resolving multiple and complex tasks. Degree in Intercultural communications and marketing help me in successful negotiating and management of international teams. Leadership is all about knowing your team and accepting the individuality of each member. Being found of IT and technologies I do my best to develop my skills and expand the area of knowledge to deliver most effective and cutting-edge solutions.
+I value honesty most. I believe in open business and transparency which can lead to better results and work environment. Superior interpersonal skills help me in resolving multiple and complex tasks. Degree in Intercultural communications and marketing help me in successful negotiating and management of international teams.
+
+Leadership is all about knowing your team and accepting the individuality of each member. Being found of IT and technologies I do my best to develop my skills and expand the area of knowledge to deliver most effective and cutting-edge solutions.
 
 [I'm a hyperlink](https://www.linkedin.com/in/alkhimovichanita/)
 
