@@ -6,12 +6,12 @@ I value honesty most. I believe in open business and transparency which can lead
 
 Leadership is all about knowing your team and accepting the individuality of each member. Being found of IT and technologies I do my best to develop my skills and expand the area of knowledge to deliver most effective and cutting-edge solutions.
 
+Visit my LinkedIn for more information. Feel free to connect!
+
 [Anita's LinkedIn profile ](https://www.linkedin.com/in/alkhimovichanita/)
 
 ```
-"Diversity is inspiration. Collaboration is progress" 
 
-                                      Motto and main research topic
 ```
 
 ### Test
